@@ -1,16 +1,13 @@
-## Hi there 👋
 
-<!--
-**CUJOONTHERUN/CUJOONTHERUN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Cujo or Anya - Whichever is fine! . I am a system called Starshine System!
 
-Here are some ideas to get you started:
+<p>I am usually found either near the spawn with my friends or under the hazbin hotel area.</p>
+<p>please don't come over just to cover me or bother me - especially if I'm with friends. You're allowed to sit with us though!</p>
+<p>I am a yumeshipper with various characters - I am nonsharing with Billy lenz (1974 Black Christmas) so please respect that.</p>
+<p>I'm very kind - I won't bite. </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+that being said,
+<p>🟢 - Usually I don't appear online but if I do then I wanna talk to people!</p>
+<p>🌙 - Offtab or afk (expect slow/no responses)</p>
+<p>⛔ - Busy or doing my own thing off the laptop or Nonverbal most of the time. Be respectful</p>
+
